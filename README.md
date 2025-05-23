@@ -1,2 +1,2 @@
 # tools-nuker-discord
-# pass| aZx2E28x
+# pass | aZx2E28x
